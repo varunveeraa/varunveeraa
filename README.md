@@ -1,3 +1,7 @@
+### AI & Full Stack Engineer in Melbourne, Australia. **Available now** for full-time roles and contracts: on-site in Melbourne, remote for Sydney and Australia-wide.
+
+[Hire profile: renaiss.cc/hire](https://renaiss.cc/hire/) · [varunveeraa.com](https://varunveeraa.com) · [Renaissance Systems](https://renaiss.cc)
+
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/varunveeraa) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/varunveeraa) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:varunveerbadra1@gmail.com) 
